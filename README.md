@@ -16,4 +16,4 @@ If I could describe myself in emojis, it would be 💻🎸📑🎨🎮
 😁 **My favourite newsletters are** Sketchplanations, Now I Know and Team CSS-Tricks  
 🌺 **I love** learning new languages, playing my guitar, reading and art (:  
 📩 **Talk to me about** all things CS, music, craft and young adult dystopian characters 💚  
-📜 [**Resume**](https://drive.google.com/file/d/1gAtXWUV4Nml_6RchObJfwGwdktHXVUSX/view?usp=sharing)
+📜 [**Resume**](https://drive.google.com/file/d/10MR3hguBG_ywljsQlu__HwZFQI0Kctkd/view?usp=sharing)
